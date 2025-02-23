@@ -19,4 +19,4 @@
 
 Мои контакты:
 @koren_aleksandr (Telegram)
-koren_aleksandr@mail.ru
+koren.aleksandr.s@gmail.com
